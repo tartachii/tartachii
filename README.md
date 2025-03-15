@@ -17,8 +17,25 @@
 
    INT: 
    Zhongli x childe shippers
+   
    anyone legit pls
+
+   Alien stage fans
+
+   homefaraway fans
+
+   10 years i loved you the most fans
+
+   ace attorney fans
+
+   green yuri manga wowowoowow fans
+
+   arcane fans
+
+   I TOLD YOU LEGIT ANYONE JUST PLEASE 8NTERACT WITHME
+   
    DNI:
+   
    basic dni criteria. 💔
 
 

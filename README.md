@@ -1,48 +1,12 @@
 ## Hey, Comrade! Check this one out!
 
+**The names Azu! I'm a male, estp, gay  and I love my bro!! /p**
 
-. .┊ ◟﹫ Name : Azu , xian ?!
-
-. .┊﹒𐐪 Age : 13-15 🐋
-
-. .┊ꜝꜝ﹒Pronouns : he/him
-
-. .┊ ⨳゛Sexuality : male. IM A MALE. Im a guy, im a he, im a gay man.
-
-. .┊ ◟ヾ Likes : art, my friends, interacting with new people
-
-. .┊﹒𐐪 Dislikes : self centered people, people who brag about hating zhongchi ://
-
-. .┊ ◟﹫ Extra : im an estp! MLM , i do edits and I write for fun ,! 🇵🇭
-
-   INT: 
-   Zhongli x childe shippers
-   
-   anyone legit pls
-
-   Alien stage fans
-
-   homefaraway fans
-
-   10 years i loved you the most fans
-
-   ace attorney fans
-
-   green yuri manga wowowoowow fans
-
-   arcane fans
-
-   I TOLD YOU LEGIT ANYONE JUST PLEASE 8NTERACT WITHME
-   
-   DNI:
-   
-   basic dni criteria. 💔
-
+**Any ships allowed (just not chilumi , unless platonic) , C+H on PT & W2I + DNCOPY!!**
 
 ## I am mostly into zhongli x childe. 
 
-I also have other ships, but those two are my otp *!* 
-I'm an og fan since 2021, I yap about them a lot. 
+I'm an og fan since 2021, I yap about them a lot, I multiship!! :3 If you truly wish to int or be more than just friends, lets be best friendz! My socials are on the more section :))
 
 ## More
 
@@ -55,7 +19,7 @@ SOCIALS:
 - 1.) yaaaazuu (story writing acc)
 - 2.) hydn.ln (editing account)
 
-- And and special shout out to my online friends!! hiro, kae, wik, antos/mei, etc! Also to my irl friends,, angie, fia, eui, lexi, toya, etc.
+- special shout out to my bro i love my bro
 
 
   ## 🪨🌊

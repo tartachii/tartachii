@@ -1,3 +1,9 @@
+## IMPORTANT
+
+**Hello chat!! I've made my very own birthday wishlist carrd, click this link https://azubdaywishlist.carrd.co/#  if you wanna plan for my birthday!!**
+
+
+
 ## Hey, Comrade! Check this one out!
 
 **The names Azu! I'm a male, estp, gay  and I love my bro!! /p**

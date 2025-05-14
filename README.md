@@ -1,21 +1,7 @@
-## HELLO !!
-HI!! Welcome to my GitHub! Please read b4 INT.
+zhongchi stans pls int haha 
 
-/ Name : Azu, Asil, Ajax
+-> yo whats up im azu heh call me azu or zuzu, I genuinely dont mind lmao anyway uhh im the most sane person youll ever meet once i enter ur life
 
-/ Age: Tartaglia
+: mlm gay!!!11 add me on discord: dilfwars (yes i like showing off my user)
 
-/ Sexuality: Gay, MLM
-
-/ i loaf childe sm <3
-
-
-
-
-## IMPORTANT
- -> @R3XTAGAL1A is my alt,  I only put it on if i'm in: dniuid, dniuf,cf,vcf. Please respect my boundaries.
-
- -> if this account is displayed, you're free to int. But if I'm not responding, wait for my response. 
- 
- -> check out my carrd if you wanna knwo me more : " https://zhongchiglazer.carrd.co "
-
+DNI if you hc freminet as a teenager i have heavy beef w you if you annoy me w this

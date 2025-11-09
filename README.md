@@ -6,6 +6,6 @@
 
  ౿  ׂ   ִ     ⏳    ⁀   ˳ ⊹⠀⏱
  
-STRAWPAGE ON WIP!!! plz int haha i crave for attention and i wanna meet new peopel :(!!!! #SAVEMEFROMBEINGANINTROVERT
+STRAWPAGE POSTED ! plz int haha i crave for attention and i wanna meet new peopel :(!!!! #SAVEMEFROMBEINGANINTROVERT
 
 F, A, T, Z, X, M, G, C!!! I LOVE YALL :DD

@@ -3,11 +3,15 @@
  ᝰ.ᐟ꩜ 
  
  💧 *A*ZU | MINOR - HE/HIM
+ 
+-> Hii !! I'm Azu, you may call me Zuzu or nicknames !! People call me Azu in general ^_^. I like ZhongChi a lott and I'm js really approachable,  though I can be shy at first but if I interact with you most of the time we can be the bestest buddies :)
 
  ౿  ׂ   ִ     ⏳    ⁀   ˳ ⊹⠀⏱
+
+ !! I am comfy w flirty jokes, i am a clingy person so I easily get attached. Please IwC if you dont wanna see what the hell do i actually look like if im severely attached 💔
+
+ !! I also hide people freely, if I'm uncomfy w u I will hide you without hesitation (unless given a warning from mee,,, but i havent hid any people so :D)
+
  
 STRAWPAGE POSTED ! plz int haha i crave for attention and i wanna meet new peopel :(!!!! #SAVEMEFROMBEINGANINTROVERT
-
-really cant believe im saying this but when I put IWC as my name, I MEAN IT. Do not make me block you permanently, I dont care if we're close or not or used to be but please just IWC when i put that as my name bro,,, god damn😭💔
-
-F, A, T, Z, X, M, G, C!!! I LOVE YALL :DD
+F, A, T, Z, X, M, G, CA, CO, K, CL, T, B I LOVE YALL :DD

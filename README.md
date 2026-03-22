@@ -10,8 +10,6 @@ $${\color{red}ABOUT\space TARTACHII\space !}$$
 
 <p align="center">⤷ ゛ ˎˊ˗ I barely go to ponytown LOL I only join for my friends who tell me to hop in! I dont find PT engaging as before. Sorry! </p>
 
-<p align="center">⤷ ゛ ˎˊ˗ But I'm always at the hoyoverse area on that ONE corner. I wear childe most of the time . Xavier my goat hahaha we miss you❤️‍🩹  </p>
-
 <p align="center">⤷ ゛ ˎˊ˗ I'm into any music genre! I mainly like PTV, TFB, SWS, etc! But I am still a new fan to ptv and sws lawl,, </p>
 
 <p align="center">⤷ ゛ ˎˊ˗ I will only tell you my social media platforms IF I feel comfortable to chat with you, so yea!! Thank you for reading.</p>
